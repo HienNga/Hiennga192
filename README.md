@@ -1,0 +1,3 @@
+- 👋 Hi,Hi, I'm a student from VNUHCM - UIT. My major is Ecommerce . Other, I'm a UX/UI designer, too.
+- 👀 I’m interested in traveling. 
+- 📫 How to reach me: hiennga1902@gmail.com
